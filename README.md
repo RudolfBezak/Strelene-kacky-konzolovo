@@ -1,0 +1,1 @@
+# Strelene-kacky-konzolovo
